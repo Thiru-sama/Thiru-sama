@@ -1,5 +1,6 @@
-**Welcome to the page of Thirusan, Virtuoso of programming, Prophet of Engineering and Oracle of Scientific Excellence.**<br>
-All likenesses drawn to me unwittingly sing my greatness.
-Yet I open my realm to all souls inspired, to marvel at my art, and to learn.
+**Welcome to the page of Thirusan, Scholar Idealist, Engineering Purist, and Architect of Scientific Excellence.**<br>
 
+My purose is to build the cornerstones of engineering. Beyond the pursuit of excellence and the mastery of my craft, nothing else matters.
 
+Yours truly,
+Thirusan
